@@ -1,0 +1,1 @@
+# Dokumenty_PDF_Gospodarka_Zoptymalizowana_i_Optimized_Economy
